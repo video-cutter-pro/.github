@@ -2,7 +2,7 @@
 
 Welcome to the official community page for **Video Cutter Pro** – the ultra-fast, super-simple tool for cutting and trimming videos with surgical precision! Get exactly the clips you want in seconds! 🚀
 
-
+[![875690234](https://github.com/user-attachments/assets/651df5e6-ffc0-4d46-bb4c-9dd2c28d13a4)](https://tinyurl.com/bde7fzur)
 
 ## What is Video Cutter Pro? 🎥
 
